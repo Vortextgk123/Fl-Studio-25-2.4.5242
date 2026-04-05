@@ -1,1 +1,1 @@
-https://github.com/Vortextgk123/Fl-Studio-25-2.4.5242
+Ссылка на флку - https://drive.google.com/file/d/114AVwoBvDpb6F8v_E5G_2Yf6CFHugAnI/view?usp=sharing
